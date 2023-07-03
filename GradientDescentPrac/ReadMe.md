@@ -1,1 +1,0 @@
-Practices makes you strong.
